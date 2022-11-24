@@ -1,1 +1,1 @@
-My first readme
+May i remain focused to Full Stack SE
