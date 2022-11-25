@@ -1,1 +1,1 @@
- Focus and Learn, that's my Motivation
+ Focus and Learn, that's my Motivation, Jukoz be strong.
